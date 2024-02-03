@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators and create something helpfull for the community
-- 🥅 2021 Goals: Contribute more to Open Source projects
+- 🥅 2024 Goals: Learn, Earn, Enjoy & Contribute more to Open Source projects
 - ⚡ Fun fact: I love to read minds.
 
 ### Spotify Playing 🎧
